@@ -8,8 +8,13 @@
 
 ## Tabulations
 
+![WhatsApp Image 2026-04-06 at 9 52 55 AM](https://github.com/user-attachments/assets/d0747f09-483d-4df3-ab03-65ce760e0801)
+
+
+
 ## Graph
 
+![WhatsApp Image 2026-04-06 at 9 36 17 AM](https://github.com/user-attachments/assets/d437ab8c-d26b-4319-994e-fe104ab2632f)
 
 <img width="853" height="183" alt="image" src="https://github.com/user-attachments/assets/ee91e1c1-171c-4208-83ee-e61ea1ba626c" />
 
