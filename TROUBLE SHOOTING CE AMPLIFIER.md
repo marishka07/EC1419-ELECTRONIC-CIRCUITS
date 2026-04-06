@@ -8,6 +8,18 @@
 
 ## Tabulations 
 
+![WhatsApp Image 2026-04-06 at 9 56 53 AM](https://github.com/user-attachments/assets/29e31ba1-841f-43f4-b929-1b9d05d34985)
+
+
+
+
+
 ## Semilog Graph
+
+
+![WhatsApp Image 2026-04-06 at 9 43 19 AM](https://github.com/user-attachments/assets/51a877a1-9465-4b69-89f2-98e52c2e260d)
+
+
+
 
 <img width="845" height="246" alt="image" src="https://github.com/user-attachments/assets/f02add25-358b-4b00-902c-8ad7d06fe7ec" />
